@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @eewrong
 - 👀 I’m interested in all things web3 and AI automation.
 
-I have a Web3 enabled website, run by AI, and both work with and own a NFT projects - one day we will go moon ;-)
-
 Origional $LUNA - i am over it now.. honest i am ;-)
 
 <!---
